@@ -6,7 +6,7 @@ Looking to save big on ContentStudio? You’re in the right place! Whether you�
 
 With discounts up to [50% off](https://contentstudio.io/pricing?fpr=5ggrh), you can get your hands on some of the best content marketing tools at a fraction of the price.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdu7GWDkBGIKBacUUyaGvEf0E0oB5BkOzmC0QOSexZ6oi6BWiqDb-gaJ7pQkMFWTtNCKaE8mpkgp20ySt6mHmAORrvtsQjdgJ55PY062AlFp1oihalZ_42Urx8mCxdWGAIjaaR7GA?key=s0y2dQq92cGzQBFg7MIS3rZW)](https://contentstudio.io/pricing?fpr=5ggrh)
+[![Discount button](https://github.com/user-attachments/assets/8ee290c6-c9ce-4a5c-868c-0eae6f6a72f5)](https://contentstudio.io/pricing?fpr=5ggrh)
 
 ## Top ContentStudio Promo Codes for 2025
 
@@ -43,7 +43,7 @@ Details: If you’re looking for a more affordable entry point, this is a fantas
 
 Details: New to ContentStudio? Start with a free 30-day trial and continue with a 30% discount on your first month. It’s a great way to explore all features risk-free before committing.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdu7GWDkBGIKBacUUyaGvEf0E0oB5BkOzmC0QOSexZ6oi6BWiqDb-gaJ7pQkMFWTtNCKaE8mpkgp20ySt6mHmAORrvtsQjdgJ55PY062AlFp1oihalZ_42Urx8mCxdWGAIjaaR7GA?key=s0y2dQq92cGzQBFg7MIS3rZW)](https://contentstudio.io/pricing?fpr=5ggrh)
+[![Discount button](https://github.com/user-attachments/assets/8ee290c6-c9ce-4a5c-868c-0eae6f6a72f5)](https://contentstudio.io/pricing?fpr=5ggrh)
 
 ## How to Redeem Your ContentStudio Promo Codes
 
@@ -65,7 +65,7 @@ Once you’ve chosen your plan and are ready to check out, look for the “Promo
 
 Ensure that the discount has been applied correctly, then proceed with your payment to complete your order. Enjoy your savings and start using ContentStudio’s powerful content management tools!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdu7GWDkBGIKBacUUyaGvEf0E0oB5BkOzmC0QOSexZ6oi6BWiqDb-gaJ7pQkMFWTtNCKaE8mpkgp20ySt6mHmAORrvtsQjdgJ55PY062AlFp1oihalZ_42Urx8mCxdWGAIjaaR7GA?key=s0y2dQq92cGzQBFg7MIS3rZW)](https://contentstudio.io/pricing?fpr=5ggrh)
+[![Discount button](https://github.com/user-attachments/assets/8ee290c6-c9ce-4a5c-868c-0eae6f6a72f5)](https://contentstudio.io/pricing?fpr=5ggrh)
 
 ---
 
@@ -97,7 +97,7 @@ If you're looking to step up your content marketing game with additional feature
 
 The Agency Plan is ideal for larger teams, offering advanced analytics and team collaboration features. Save a massive $99.50/month when you use the SAVE50 promo code!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdu7GWDkBGIKBacUUyaGvEf0E0oB5BkOzmC0QOSexZ6oi6BWiqDb-gaJ7pQkMFWTtNCKaE8mpkgp20ySt6mHmAORrvtsQjdgJ55PY062AlFp1oihalZ_42Urx8mCxdWGAIjaaR7GA?key=s0y2dQq92cGzQBFg7MIS3rZW)](https://contentstudio.io/pricing?fpr=5ggrh)
+[![Discount button](https://github.com/user-attachments/assets/8ee290c6-c9ce-4a5c-868c-0eae6f6a72f5)](https://contentstudio.io/pricing?fpr=5ggrh)
 
 ---
 
