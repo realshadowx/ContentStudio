@@ -1,5 +1,7 @@
 # ContentStudio Promo Codes 2025 | Get 50% Off Coupon 🔥
 
+Hello folks, Amir here.
+
 Looking to save big on ContentStudio? You’re in the right place! Whether you’re new to ContentStudio or a long-time user, these exclusive 2025 promo codes will help you unlock major savings.
 
 With discounts up to [50% off](https://contentstudio.io/pricing?fpr=5ggrh), you can get your hands on some of the best content marketing tools at a fraction of the price.
